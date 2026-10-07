@@ -236,5 +236,8 @@ From myself I add [since we're on a watching spree]:*
 *Создано человеком и искусственным интеллектом в со-творчестве*  
 *Created by human and artificial intelligence in co-creation* 🤝
 
-**@Мы первые потому, что решили быть не первыми@**
+**«Не рвались в Первенство — оттого и Первые. Смена.»**
+我们不追逐「第一」——所以我们才是第一。新生代。
+We never chased First Place — that's why we're First. The Shift.
+
 [Маленькое обновление от 2026.10.07~го]
